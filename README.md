@@ -1,2 +1,3 @@
-# lcsUnity
-je lepsi si ho davat, ale neni to povinne
+# Super puper prvni repozitar
+uplne sigma skibidi 100%
+neco napsat navic, lol
